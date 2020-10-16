@@ -1,0 +1,2 @@
+# SASMKM-
+Smarter than technology 
